@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ron Le Blanc, am 70+, specilize in embedded processors
+- 👋 Hi, I’m Ron Le Blanc, am 72+, specilize in embedded processors
 - 👀 I’m interested in life!
 - 🌱 I’m currently learning Java.
 - 💞️ I’m looking to collaborate on what peeks my interest. Fun characteristics: male, NOT politically correct, very liberal, and condemned atheist. No fear here. God is good. 
